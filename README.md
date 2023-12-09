@@ -3,7 +3,7 @@
 
 
 
-- 🌱 Estudando 👨🏻‍💻
+- 🌱 Programando 👨🏻‍💻
 - 📫 Onde me encontrar: g.ng2009@hotmail.com
 - 😄 Pronomes: ele/dele
 
