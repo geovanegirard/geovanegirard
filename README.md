@@ -4,7 +4,7 @@
 
 
 - 🌱 Programando 👨🏻‍💻
-- 📫 Onde me encontrar: g.ng2009@hotmail.com
+- 📫 Onde me encontrar: girardgeovane@gmail.com
 - 😄 Pronomes: ele/dele
 
 #
